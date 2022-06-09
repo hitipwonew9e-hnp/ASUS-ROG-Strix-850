@@ -1,0 +1,1 @@
+# ASUS-ROG-Strix-850
